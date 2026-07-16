@@ -1,2 +1,0 @@
-# locinn
-yyuy
